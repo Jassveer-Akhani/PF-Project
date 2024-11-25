@@ -1,3 +1,4 @@
+![WhatsApp Image 2024-11-21 at 20 07 06_91a9033e](https://github.com/user-attachments/assets/118aee65-780f-4e6d-bc7a-e3ac1959fcfa)
 # Eldermoon: The Last Stand
 
 ## Overview
